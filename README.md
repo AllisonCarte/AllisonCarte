@@ -1,4 +1,4 @@
-![Kermit typing](https://media.tenor.com/5i9Yx-nk9CsAAAAM/typing-fast.gif)
+![Kermit typing](https://thumbs.gfycat.com/DamagedEarlyGermanshorthairedpointer-size_restricted.gif)
 ## Hey there, I’m Allison 👽
 - 👀 I’m interested in continued learning, long coding sessions, and adding to my list of personal projects.  
 - 🌱 I’m currently learning Java, advanced SQL, and the ins-and-outs of Firebase.
