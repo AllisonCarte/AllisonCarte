@@ -1,4 +1,4 @@
-
+![Kermit typing](https://gifdb.com/images/high/kermit-fast-typing-7z0yjelb06csoray.gif)
 ## Hey there, I’m Allison 👽
 - 👀 I’m interested in continued learning, long coding sessions, and adding to my list of personal projects.  
 - 🌱 I’m currently learning Java, advanced SQL, and the ins-and-outs of Firebase.
